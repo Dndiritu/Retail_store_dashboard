@@ -1,2 +1,3 @@
 #Dashboard for Retail Store
-![image](https://github.com/user-attachments/assets/e0c5aa2c-08ee-4b52-ab3d-3f51c9a0cb9d)
+![WhatsApp Image 2025-04-11 at 13 13 27_6231b8c0](https://github.com/user-attachments/assets/634edef0-adf9-464e-82cf-7580342b790e)
+
